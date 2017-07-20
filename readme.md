@@ -1,0 +1,1 @@
+Cao koleg. Kako si?
